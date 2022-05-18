@@ -1,2 +1,2 @@
 # Projeto Gotemburgo
-Deconolizando o acervo Wai Wai
+Decolonizando o acervo Wai Wai
